@@ -1,4 +1,4 @@
-<img width="1521" height="905" alt="image" src="https://github.com/user-attachments/assets/da064e50-be7f-499a-a88d-e3b20b37c53f" />
+<img width="756" height="425" alt="image" src="https://github.com/user-attachments/assets/36024b3c-12da-485b-908b-202e1ace8f6a" />
 
 😭😭😭SO THIS IS BASICALLY A CALCULATOR TO COUNT YOUR KD IN CS2 THAT'S IT THANKS😭😭😭
 
